@@ -1,1 +1,1 @@
-# earncrotoken
+# #EarnCRO to the moon!
